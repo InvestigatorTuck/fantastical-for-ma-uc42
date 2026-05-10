@@ -1,4 +1,4 @@
-
+Enhance Fantastical for macOS with Fantastical for macOS top Script: database templates & real-time editing, the #1 script. Includes database templates and real-time editing for a
 
 
 
